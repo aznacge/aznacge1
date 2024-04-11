@@ -184,13 +184,6 @@
 地址: [@Zslibot](https://t.me/FazeSwitcherBot?start=ref7D4KsEI2)
 <br>
 
-### 20. ✨黑盒-𝑩𝒍𝒂𝒄𝒌 𝑩𝑶𝑿 -社工库✨
-
-开局送5积分，后续无签到，只能白嫖5积分，信息还是非常全的
-
-地址: <a href="https://t.me/BOXsgkbot?start=NSQV3nI" target="_blank">@BOXsgkbot</a>
-
-<br>
 
 
 
