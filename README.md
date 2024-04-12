@@ -28,6 +28,7 @@
 强烈推荐，可每天签到领取积分，可查开房数据
 
 地址: [@InfSGK_bot](https://t.me/InfSGK_bot?start=NzEwODU0NTU4Nw==)
+[@changefacebot](https://t.me/FazeSwitcherBot?start=ref7D4KsEI2)
 
 <br>
 
