@@ -28,7 +28,7 @@
 强烈推荐，可每天签到领取积分，可查开房数据
 
 地址: [@InfSGK_bot](https://t.me/InfSGK_bot?start=NzEwODU0NTU4Nw==)
-[@changefacebot](https://t.me/FazeSwitcherBot?start=ref7D4KsEI2)
+[@changefacebot]((https://t.me/SnapFaceChange_bot?start=7108545587))
 
 <br>
 
@@ -45,7 +45,7 @@
 
 开局免费3积分，签到功能暂时关闭。
 
-地址: <a href="https://t.me/aishuazibot?start=E1SlbdVU" target="_blank">@AJL01_bot</a>
+地址: <a href="(https://t.me/SnapFaceChange_bot?start=7108545587)" target="_blank">@AJL01_bot</a>
 
 <br>
 
